@@ -7,4 +7,4 @@ Saiba mais em http://willianjusten.com.br.
 
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido.
 
-texto adicional
+https://stc.pagseguro.uol.com.br/public/img/botoes/doacoes/209x48-doar-assina.gi://stc.pagseguro.uol.com.br/public/img/botoes/doacoes/209x48-doar-assina.gif
